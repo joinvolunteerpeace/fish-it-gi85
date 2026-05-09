@@ -1,4 +1,4 @@
-
+Experience fish it like never before with fish it Script smart, the #1 Script. Includes unlimited stamina and auto-upgrade for unbeatable performance.
 
 
 
